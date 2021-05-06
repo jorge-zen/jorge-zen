@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jorge-zen
+- 👀 I’m interested in videogames, food & wine
+- 🌱 I’m currently learning industrial engineering, occupational health service & HSE (Health, Security and Enviromental)
+- 💞️ I’m looking to collaborate on consulting programs of security and occupational health services
+- 📫 How to reach me IG @jorge_zen
